@@ -2,8 +2,8 @@
 
 ₊˚⊹☆Nicks: Pup/Nix/Yumi/Sprout/Character cosplaying as
 
-Me and that one person if we knew eachother irl btws trust!!
-![image](https://github.com/user-attachments/assets/7724b9f2-3120-4517-b5de-418bc25515e8)
+Me and my 2 kids btw, warning:super real!!!!✨
+![image](https://github.com/user-attachments/assets/9d0a465c-0ab6-471c-adae-c4bc5ba96a29)
 
 
 BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
