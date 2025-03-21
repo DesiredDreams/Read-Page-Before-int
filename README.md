@@ -103,5 +103,5 @@ Btw my straw basiclly says the same things as here but yk drawing still apprecia
 
 
 
-My nale wife btw his my fav bet u cant tell✨
+My male wife btw his my fav bet u cant tell✨
 ![image](https://github.com/user-attachments/assets/c3854ec6-ae84-444c-827a-a0186d95c467)
