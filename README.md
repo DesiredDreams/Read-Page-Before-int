@@ -17,7 +17,7 @@ BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
 
 
 
--dnc any of my cosplays/oc's they werent made for u 2 copy start being creativy.
+-dnc any of my cosplays/oc's they werent made for u 2 copy start being creative.
 
 
 # DNI List
