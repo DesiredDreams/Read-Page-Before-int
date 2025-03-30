@@ -89,13 +89,6 @@ Ships!!
 
 Btw my straw basiclly says the same things as here but yk drawing still appreciated✨
 
-![image](https://github.com/user-attachments/assets/15794315-4592-4f1a-aa1e-a32e6e05a088)
-
-
-
-
-
-
 
 
 
