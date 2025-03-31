@@ -85,6 +85,8 @@ Ships!!
 
 -wtv pebblexcoal is called gulps
 
+-Strawberrycookie+Mooncookies
+
 -Theres alot of more you'll prob find out while int with me (i respect any legal ship btw so u can expect me to have alot of ships)
 
 Btw my straw basiclly says the same things as here but yk drawing still appreciated✨
