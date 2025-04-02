@@ -59,7 +59,6 @@ INFO!!
 
 -Lowk antisoc + ADHD.
 
--MSI LISTENER!!X3
 
 -silly emoji + face user :P (sometimes heh..)
 
