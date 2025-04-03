@@ -2,9 +2,8 @@
 
 ₊˚⊹☆Nicks: Pup/Nix/Yumi/Sprout/Character cosplaying as
 
-Who ever u are u made me and the gang laugh
-![image](https://github.com/user-attachments/assets/5cdf33d1-2b43-465a-ac38-5ef544b76a1e)
-
+His my baby berry sweet beloved forever i litterly just love him sm #1 fan n simp of him prove me wrong. (u cant.)
+![image](https://github.com/user-attachments/assets/250ff053-85eb-4512-a969-08ab14bef068)
 
 
 BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
