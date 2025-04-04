@@ -85,7 +85,7 @@ Ships!!
 
 -Strawberrycookie+Mooncookies
 
--Sapphireshadow
+-Sapphireshadow (B.sapphire x S. Milk cookie)
 
 -Theres alot of more you'll prob find out while int with me (i respect any legal ship btw so u can expect me to have alot of ships)
 
