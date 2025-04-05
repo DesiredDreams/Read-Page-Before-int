@@ -1,6 +1,6 @@
-# HEY CHAT !!
+# "Welcome to Garden wiev how can i help you?"
 
-₊˚⊹☆Nicks: Pup/Nix/Yumi/Sprout/Character cosplaying as
+₊˚⊹☆Nicks: Pup/Nix/Yumi/Sprout/Dandy Character cosplaying as (Sprout,Dandy or Pup is mostly prefered<3)
 
 His my baby berry sweet beloved forever i litterly just love him sm #1 fan n simp of him prove me wrong. (u cant.)    ILOVEMYMALEWIFEGIGGLES
 ![image](https://github.com/user-attachments/assets/250ff053-85eb-4512-a969-08ab14bef068)
@@ -9,17 +9,17 @@ His my baby berry sweet beloved forever i litterly just love him sm #1 fan n sim
 BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
 
 
--L/S/M,V/S/P,I,B,S,S,N,O,P,M,C,G,C,D,H=COOLIES GANG NEMBERS EVER!!!X3
+-L/S/M,V/S/P,I,B,S,S,N,O,P,M,C,G,C,D,H,I=COOLIES GANG NEMBERS EVER!!!X3
 
 
--Love for my p. child/wifes n husbands they cool trust me when i say this
+-Love for my p. child/wifes n husbands they cool trust me when i say this (u all are lovely ppl vro)
 
 
 
--dnc any of my cosplays/oc's they werent made for u 2 copy start being creative.
+-dnc any of my cosplays/oc's they werent made for u 2 copy start being creative pls,,small inspo can be taken if ASKED. pls ask. i wont bite ur head off only if u take inspo w/o even asking.
 
 
-# DNI List
+# DNI List yay
 
 
 -Pedos
@@ -38,36 +38,38 @@ BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
 
 -problamatic creaters/ppl who supports them
 
+-Proshippers. you all disgust me vro idgaf what the reason is proshipping was never a good thing.
+
 # some info about me + fav ships + fandoms!!
 
 -Fandoms: batim,dw,fpe,phighting,regre,tadc,pressure,hb,squid game,fnaf,crk (theres prob more i just forgot abt em..)
 
 INFO!!
 
--The name Nix n Yumi is ONLY allowed for close friends or if i allowed u 2 call me that unless i didnt pls DONT call me that as in i will ignore u or hide u ty<3
+-The name Nix n Yumi is ONLY allowed for close friends or if i allowed u 2 call me that unless i didnt pls DONT call me that as in i will ignore u or hide u ty<3,,yh yh ik what ur thinking "oh ur just over reacting" yh so what? you wouldnt like if people called u by a name u dont like would u? i just actually do smth abt it ty,,
 
 -#1 Sprouts kinner<333
 
--often misspelling stuff by purpose or accident + bad grammar sometimes ignore that mb chat
+-often misspelling stuff by purpose or accident + bad grammar sometimes ignore that mb chat ^^`
 
--Les/Bi + Trans fem (yeah yeah in sexuality questioning stage rn✋💔)
+-Lesbian + Transfem 
 
 -15-19yr old
 
--I dont voice/facetime call pls dont ever ask i only vc with close friends
+-I dont voice call neither face time if by any chance i add u on dc or tell u my user pls dont try forcing me 2 call u if im ready 2 call u ill let you know 
 
--Lowk antisoc + ADHD.
+-Lowk antisoc + ADHD,,
 
 
 -silly emoji + face user :P (sometimes heh..)
 
 -Cosplayer+Multishipper+Multifandom
 
--Often freaky/flirty around friends if ur uncomfy with that just tell me n ill stop<333
+-Often freaky/flirty around friends if ur uncomfy with that just tell me n ill stop<333 (really tell me i wont get mad!)
 
--I often swear/bypass btw gulps,,
+-i often bypass or swear so if ur perchance sensitive 2 it or simple dont like it tell me that 2 ill try not to swear around u
 
-Ships!!
+Ships yayay
 
 -Flowerberry
 
@@ -79,7 +81,9 @@ Ships!!
 
 -crafyberry
 
--moonshell
+-moonshellú
+
+-Tragedy/comedyberry
 
 -wtv pebblexcoal is called gulps
 
@@ -87,9 +91,13 @@ Ships!!
 
 -Sapphireshadow (B.sapphire x S. Milk cookie)
 
--Theres alot of more you'll prob find out while int with me (i respect any legal ship btw so u can expect me to have alot of ships)
+- + ships from my other fandoms im too lazy to type down💔
 
-Btw my straw basiclly says the same things as here but yk drawing still appreciated✨
+
+-Theres alot of more you'll prob find out while int with me (i respect any legal ship btw so u can expect me to have alot of ships heh,,or eitherway just respect urs or possible also become a fan of it)
+
+
+-Drawings are always appreciated no matter if u think u made its bad ill prob find it lovely n appreciate that u put effort into drawing from me + feel free to ask my anytging really! (strawpage)
 
 
 
@@ -98,5 +106,6 @@ Btw my straw basiclly says the same things as here but yk drawing still apprecia
 
 
 my parents btw real
-![image](https://github.com/user-attachments/assets/96a10877-4e1e-4e9a-b8a5-530705f3e537)
+
+![image](https://github.com/user-attachments/assets/b52228bc-9b3c-4124-9358-324488081759)
 
