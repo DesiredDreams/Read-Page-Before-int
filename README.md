@@ -40,6 +40,8 @@ BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
 
 -Proshippers. you all disgust me vro idgaf what the reason is proshipping was never a good thing.
 
+-Ragebait people no not the ship yk what i mean damn well like plsss vroo whhyy ur weird if u do ragebait like no no no dni
+
 # some info about me + fav ships + fandoms!!
 
 -Fandoms: batim,dw,fpe,phighting,regre,tadc,pressure,hb,squid game,fnaf,crk (theres prob more i just forgot abt em..)
