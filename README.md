@@ -97,5 +97,6 @@ Btw my straw basiclly says the same things as here but yk drawing still apprecia
 
 
 
-mm sproutcest mentioned! (art credts to: Leo/devezal on pinterest+twitter)
-![image](https://github.com/user-attachments/assets/aed51302-cba1-4486-aa7b-a99b378e54a3)
+my parents btw real
+![image](https://github.com/user-attachments/assets/96a10877-4e1e-4e9a-b8a5-530705f3e537)
+
