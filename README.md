@@ -99,7 +99,7 @@ Ships yayay
 -Theres alot of more you'll prob find out while int with me (i respect any legal ship btw so u can expect me to have alot of ships heh,,or eitherway just respect urs or possible also become a fan of it)
 
 
--Drawings are always appreciated no matter if u think u made its bad ill prob find it lovely n appreciate that u put effort into drawing for me + feel free to ask my anytging really! (strawpage)
+-Drawings are always appreciated no matter if u think u made its bad ill prob find it lovely n appreciate that u put effort into drawing for me + feel free to ask my anything really! (strawpage)
 
 
 
