@@ -40,7 +40,7 @@ BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
 
 -problamatic creaters/ppl who supports them
 
--Proshippers. you all disgust me vro idgaf what the reason is proshipping was never a good thing.
+-Proshippers/Darkshippers. you all disgust me vro idgaf what the reason is proshipping n darkshipping was never a good thing smh.
 
 -Ragebait people no not the ship yk what i mean damn well like plsss vroo whhyy ur weird if u do ragebait like no no no dni
 
