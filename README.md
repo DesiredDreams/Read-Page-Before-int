@@ -5,7 +5,8 @@
 ₊˚⊹☆Nicks: Pup/Nix/Yumi/Sprout/Dandy Character cosplaying as (Sprout,Dandy or Pup is mostly prefered<3)
 
 His my baby berry sweet beloved forever i litterly just love him sm #1 fan n simp of him prove me wrong. (u cant.)    ILOVEMYMALEWIFEGIGGLES
-![image](https://github.com/user-attachments/assets/250ff053-85eb-4512-a969-08ab14bef068)
+![image](https://github.com/user-attachments/assets/7cef879f-38ea-411c-8dbb-1abbfed3f574)
+
 
 
 BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
