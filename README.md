@@ -1,6 +1,6 @@
 
 
-# "Welcome to Garden wiev how can i help you?"
+# "Ill break ur bones with all the love i carry."
 
 ₊˚⊹☆Nicks: Pup/Nix/Yumi/Sprout/Dandy Character cosplaying as (Sprout,Dandy or Pup is mostly prefered<3)
 
