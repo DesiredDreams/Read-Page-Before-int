@@ -49,7 +49,7 @@ BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
 
 # some info about me + fav ships + fandoms!!
 
--Fandoms: batim,dw,fpe,phighting,regre,tadc,pressure,hb,squid game,fnaf,crk (theres prob more i just forgot abt em..)
+-Fandoms: batim,dw,fpe,phighting,regre,tadc,pressure,hb,squid game,fnaf,crk,ppt (theres prob more i just forgot abt em..)
 
 INFO!!
 
