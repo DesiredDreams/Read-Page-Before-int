@@ -86,7 +86,7 @@ Ships yayay
 
 -shellcake
 
--crafyberry
+-crafyberry/craferbakery
 
 -moonshell
 
