@@ -21,6 +21,8 @@ BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
 
 -dnc any of my cosplays/oc's they werent made for u 2 copy start being creative pls,,small inspo can be taken if ASKED. pls ask. i wont bite ur head off only if u take inspo w/o even asking.
 
+-Pls in the kindest way possible stop copying my page or wth this is im tired of it. //pspsps dont even say a word shut up its not aimed just mentioned it.
+
 
 # DNI List yay
 
