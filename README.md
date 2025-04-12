@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/5442da09-b5c0-4161-87e2-42c330a379f6)
+![image](https://github.com/user-attachments/assets/d2a3849d-6641-4045-bf5d-c9f3c24db71a)
+
 
 
 # "I`ll break ur bones with all the love i carry."
