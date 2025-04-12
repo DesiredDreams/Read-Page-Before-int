@@ -25,6 +25,8 @@ BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
 
 -Pls in the kindest way possible stop copying my page or wth this is im tired of it. //pspsps dont even say a word shut up its not aimed just mentioned it.
 
+-im not as mean as i look here i swear💔
+
 
 # DNI List yay
 
