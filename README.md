@@ -113,8 +113,7 @@ Ships yayay
 
 
 
+![image](https://github.com/user-attachments/assets/5b91ecc2-12c4-4f11-98d8-0081f8fcc8f9)
 
-my parents btw real
 
-![image](https://github.com/user-attachments/assets/b52228bc-9b3c-4124-9358-324488081759)
 
