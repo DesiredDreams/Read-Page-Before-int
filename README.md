@@ -63,9 +63,9 @@ INFO!!
 
 -often misspelling stuff by purpose or accident + bad grammar sometimes ignore that mb chat ^^`
 
--Lesbian + Transfem 
+-Bi + Trans(??)
 
--15-19yr old
+-16-19yr old
 
 -I dont voice call neither face time if by any chance i add u on dc or tell u my user pls dont try forcing me 2 call u if im ready 2 call u ill let you know 
 
