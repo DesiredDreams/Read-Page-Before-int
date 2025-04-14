@@ -14,7 +14,7 @@ His my baby berry sweet beloved forever i litterly just love him sm #1 fan n sim
 BTW JUST BC I HAVE SUPPORTER I WONT EAT U ALIVE IF U INT WITH ME SOSBSBSB
 
 
--L/S/M,V/S/P,I,B,S,S,N,O,P,M,C,G,C,D,H,I=COOLIES GANG NEMBERS EVER!!!X3
+-L/S/M,V/S/P,I,B,S,S,N,O,P,M,C,G,C,H,I=COOLIES GANG NEMBERS EVER!!!X3
 
 
 -Love for my p. child/wifes n husbands they cool trust me when i say this (u all are lovely ppl vro)
